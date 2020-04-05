@@ -4,7 +4,8 @@
 
 MARCH 15, 2020
 
-"AI AND THE FUTURE OF MEDICINE/MANKIND" OMA TALK SCHEDULED FOR MARCH 21 IS CANCELLED
+"AI AND THE FUTURE OF MEDICINE/MANKIND" 
+ONTARIO MEDICAL ASSOCIATION (OMA)  TALK SCHEDULED FOR MARCH 21 IS CANCELLED
 
 A few colleagues have reached out to me and asked about the talk. Unfortunately due to Covid-19 precautions the talk will be cancelled and hopefully rescheduled for later this year or virtual presentation.
 Please click this link for the slides intended for the talk:
